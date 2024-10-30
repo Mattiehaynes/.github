@@ -91,4 +91,4 @@ For any questions, issues, or suggestions, feel free to open an issue in this re
 
 ---
 
-Make sure to **star this repository** if you found it helpful, and share it with others interested in exploring YouTube Premium APK!
+Make sure to **[star this repository](https://github.com/Sprunki-Incredibox)** if you found it helpful, and share it with others interested in exploring YouTube Premium APK!
